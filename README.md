@@ -21,3 +21,6 @@ Here are some ideas to get you started:
 - :notebook: I enjoy reading manga and watching anime
 - :video_game: Videogames (PS5, switch and even mobile, I'm not a snob)
 - :musical_score: Even sometimes dabble in attending theatre and opera
+
+
+I am interested in filling the gaps in my knowledge.
