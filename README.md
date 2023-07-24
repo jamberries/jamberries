@@ -14,4 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-### Im Jasmine :cherry_blossom: She/Her :nail_care:
+### Im Jasmine She/Her :nail_care::cherry_blossom:
+
+- :womans_clothes: I like crafting and creating. I enjoy sewing, crochet, knitting
+- :movie_camera: I enjoy films, tv
+- :notebook: I enjoy reading manga and watching anime
+- :video_game: Videogames (PS5, switch and even mobile, I'm not a snob)
+- :musical_score: Even sometimes dabble in attending theatre and opera
